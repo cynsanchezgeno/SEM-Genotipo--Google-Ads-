@@ -1,1 +1,0 @@
-# SEM-Genotipo--Google-Ads-
